@@ -1,5 +1,5 @@
 # Comida en tendencia
-![img.png](img5.png)
+![img 5.png](img5.png)
  La comida en tendencia es la que en la actualidad esta revolucionando el mundo de la cocina y reflejan un cambio en las preferencias del consumidor hacia opciones más saludables, sostenibles y variadas. algunas de estas tendencvias son:
  - Alimentos basados en plantas
  - Fermentados y probióticos
