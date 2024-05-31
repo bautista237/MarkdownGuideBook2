@@ -14,13 +14,13 @@ The book explores themes of regret, love, and fate. If you enjoy magical realism
 https://en.wikipedia.org/wiki/Before_the_Coffee_Gets_Cold
 # Book 2
 ### It ends with us
-![imagen2.png](imagen2.png)
+![imagen2.png](imagen2.png)  
 It Ends With Us is a powerful romance novel by Colleen Hoover. It delves into complex relationships and the impact of abuse. "The novel has sold over one million copies worldwide and been translated into over twenty languages".  
  The story revolves around Lily Bloom, a college graduate who moves to Boston with dreams of opening her own floral shop. She meets Ryle Kincaid with whom she starts a relationship. Lily's part includes a childhood friendship with Atlas Corrigan, which was cut short due to her abusive father. As Lily and Ryle's relationship unfolds, they face challenges, including Ryle's anger issues resurfacing. Lily discovers she's pregnant with Ryle's child but keeps it a secret.  
 https://en.wikipedia.org/wiki/It_Ends_with_Us
 # Book 3
 ### Harry Potter and the Sorcerer's Stone (Book 1)
-![imagen4.png](imagen5.png) 
+![imagen4.png](imagen5.png)   
 In J.k Rowling's novel, we followed the journey of Harry Potter, a young orphan living with his cruel aunt and uncle. On his eleventh birthday, everything changes when he receives an unexpected letter, a letter that reveals his true identity as a wizard. Harry is soon admitted to Hogwarts, where he embarks on an adventure filled with magic, danger and friendships.  
  The novel introduces reader to a fully realized wizarding universe, complete with magical creatures and spells. As Harry navigates his first year at Hogwarts, he uncovers secrets about his past, the death of his parents, and Lord Voldemort. The story sets the stage for Harry's epic journey.
 https://en.wikipedia.org/wiki/Harry_Potter_and_the_Philosopher%27s_Stone_(film)
