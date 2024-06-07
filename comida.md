@@ -1,5 +1,5 @@
 # Comida en tendencia
-![img 5.png](img5.png)
+![10_tendencias_de_consumo_para_el_sector_Horeca_y_la_industria_de_alimentos_en_2023__1_.jpg](10_tendencias_de_consumo_para_el_sector_Horeca_y_la_industria_de_alimentos_en_2023__1_.jpg)
  La comida en tendencia es la que en la actualidad esta revolucionando el mundo de la cocina y reflejan un cambio en las preferencias del consumidor hacia opciones más saludables, sostenibles y variadas. algunas de estas tendencvias son:
  - Alimentos basados en plantas
  - Fermentados y probióticos
