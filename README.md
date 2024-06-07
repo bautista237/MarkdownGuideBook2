@@ -1,5 +1,5 @@
 # Integrantes
-- Juan Bautista Tasseloo
+- Juan Bautista Tassello
 - Sebastian Santiago Selles 
 - Sofia Montanari 
 ## Links
