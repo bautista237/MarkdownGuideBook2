@@ -8,7 +8,7 @@
  
 mas info:https://www.seriouseats.com
 # Alimentos basados en plantas
-[[![img_1.png](img_6.png)](https://github.com/bautista237/MarkdownGuideBook2/blob/comidas_en_tendencia/d015ab1f8167b0e8f996b4c3c70d3df50e957c16.jpg?raw=true)![Uploading image.png…]()](https://github.com/bautista237/MarkdownGuideBook2/blob/comidas_en_tendencia/d015ab1f8167b0e8f996b4c3c70d3df50e957c16.jpg?raw=true)![Uploading image.png…]()
+[[![]()]
 
 
  La popularidad de las dietas veganas y vegetarianas sigue en aumento, y esto ha llevado a un auge en productos como hamburguesas de plantas, leches vegetales y alternativas a productos lácteos y cárnicos. algunas de las plantas que se utilizan en esta deta son:
